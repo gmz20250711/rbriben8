@@ -22,4 +22,4 @@
 
 通过这些标准，您可以轻松评估并找到一个优质的日本AV免费观看平台，享受安全、高清且无广告的观影体验。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/gmz20250711/rbriben8 )</span>
